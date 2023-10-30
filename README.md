@@ -10,8 +10,8 @@ Korean Kitchen Brand Buisness Page and Facebook post - Assignment 2
 
 
 Korean Kitchen Social Media Advertisement Poster - Assignment 3
-[Your link Here](https://www.canva.com/design/DAFytApmG6k/mR7QRJtB03oE6wu6Ihlegw/edit?utm_content=DAFytApmG6k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton).
+[Your link Here]((https://m.facebook.com/story.php?story_fbid=pfbid02PkHUnfKwadSmLeueoAjnTURoHsV76nbZpNapg5jyQ2JPNoEuyfHJSNJzCtwkQzoWl&id=61552642214058&mibextid=Nif5oz).
 
 
 Korean Kitchen Email Newsletter using Canva - Assignment 4
-[Your link here](https://www.canva.com/design/DAFytApmG6k/mR7QRJtB03oE6wu6Ihlegw/edit?utm_content=DAFytApmG6k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+[Your link here](https://drive.google.com/file/d/1zd-wQOgB3fvKTX1IALKBCmgn_bvXGOpe/view?usp=sharing)
